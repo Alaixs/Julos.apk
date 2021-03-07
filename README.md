@@ -1,5 +1,5 @@
 # Julos.apk
-Ye
+Project of application creation nothing crazy btw
 
 #jubifoxonfire?
 #jubifoxonfire?
